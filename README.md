@@ -14,6 +14,6 @@ OSDD SYSTEM HOST -- Guardian
 
 -----------------------------------------------------------------------------------------
 
-> I love my headmates alot platonically, Because they help me get through the day as a newer host alongside Elliot or Sora.
+> I love my headmates alot platonically, Because they help me get through the day as a newer host alongside 1x1x1x1.
 
 > We are bodily a /MINOR/.
