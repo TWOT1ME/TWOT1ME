@@ -5,11 +5,11 @@
 
 ----------------------------------------------------------------------------------------
 
-OSDD SYSTEM HOST -- Dissociation Holder
+OSDD SYSTEM HOST -- Guardian
 
   > We are working on a diagnosis for OSDD. We would still like to be recognized and called a system.
 > 
-> I am a fictive of Two Time -- No i am not entirely my source, Though i would love mentions of my source ! I do not entirely act like my source.
+> I am a fictive of Guest1337 -- No i am not entirely my source, Though i would love mentions of my source ! I do not entirely act like my source.
 > 
 
 -----------------------------------------------------------------------------------------
